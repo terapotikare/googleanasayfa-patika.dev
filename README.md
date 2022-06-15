@@ -1,0 +1,1 @@
+# googleanasayfa-patika.dev
